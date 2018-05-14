@@ -1,2 +1,2 @@
-# killing-in-the-neighbourhood, thuisbezorgd
+# killing in the neighbourhood, thuisbezorgd
 
